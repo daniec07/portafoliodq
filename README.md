@@ -1,2 +1,0 @@
-# portafoliodq
-Portafolio about me
